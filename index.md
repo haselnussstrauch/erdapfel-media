@@ -5,6 +5,7 @@ für den Instagram-Account @erdapfel.german („Austrian German Daily“).
 
 **Medieninhaber und Diensteanbieter:**
 Markus Mandl
+Lehmhäusl 6
 3261 Steinakrichen, Österreich
 
 **E-Mail:** erdapfelgerman@gmail.com
