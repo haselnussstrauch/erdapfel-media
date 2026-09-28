@@ -1,7 +1,7 @@
 # Impressum und Offenlegung
 
 Angaben gemäß § 5 E-Commerce-Gesetz und Offenlegung gemäß § 25 Mediengesetz
-für den Instagram-Account @erdapfel.german („Austrian German Daily“).
+für den Instagram-Account @erdapfel.german („Austrian German”).
 
 **Medieninhaber und Diensteanbieter:**
 Markus Mandl
